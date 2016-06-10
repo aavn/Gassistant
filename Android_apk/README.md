@@ -1,1 +1,1 @@
-The .apk file will be available from 13/6/2016
+The .apk file will be available from 14/6/2016
